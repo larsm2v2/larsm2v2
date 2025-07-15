@@ -62,4 +62,4 @@ Duke University
 
 ---
 
-_“Code is a taste of music—on and off the dance floor.”_
+_“Think deeply, listen well, love what you do, dance.”_
